@@ -13,6 +13,10 @@ These deals are publicly announced.
 # Booze Geek Black Friday Deals 2021
 ## Drinks (Singapore)
 
+Amazon \
+https://www.amazon.sg/blackfriday?deals-widget=%257B%2522presetId%2522:%2522deals-collection-wine%2522%257D \
+Various Black Friday deals on wine, beer, and spirits at the above link.
+
 Brewlander \
 https://www.brewlander.com/collections/products 
 
