@@ -48,6 +48,11 @@ https://centurywines.com.sg/ \
 Up to 30% off sale on select whiskies \
 Good between 25 Nov - 12 Dec
 
+DFS Singapore \
+https://shop-singapore.dfs.com/collections/black-friday-flash-sale \
+Sale on selected items in the above link. \
+Ends at midnight on 30 Nov.
+
 EC Proof \
 https://ecproof.com/ \
 20% discount with code BFCM20% \
