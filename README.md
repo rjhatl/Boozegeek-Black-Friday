@@ -84,6 +84,11 @@ https://grandcruwines.com/collections/champagne-offer-2021  \
 Champagne sale \
 Ends after 26 Nov.
 
+Grand Wine SG \
+https://shopee.sg/grandwinesg  \
+10% of $40+ spend (must claim voucher in Shopee site) \
+Ends 30 Nov.
+
 Heart of Darkness \
 https://www.heartofdarknessbrewery.com.sg/ \
 Buy one get one free on pizza and beer in the bar \
