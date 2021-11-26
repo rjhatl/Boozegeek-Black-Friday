@@ -264,6 +264,11 @@ https://napavalleywineacademy.com/black-friday-2021/ \
 Not all their courses are online, check before you buy. And online courses that come with tasting packs might be a problem. \
 Ends after 30 Nov (no time given).
 
+Robert Parker \
+https://www.robertparker.com/join-us/personal-subscription \
+25% off annual personal subscriptions with the code BLACKFRIDAY2021 \
+Ends 5 Dec.
+
 Wine Folly (Wine educational materials - May or may not ship direct to Singapore) \
 https://shop.winefolly.com/collections/black-friday-2021 \
 30% off everything at the above link. \
