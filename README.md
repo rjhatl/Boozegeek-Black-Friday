@@ -66,7 +66,9 @@ Ends after 26 Nov.
 Heart of Darkness \
 https://www.heartofdarknessbrewery.com.sg/ \
 Buy one get one free on pizza and beer in the bar \
-Good beterrn 12pm-6pm on 26 Nov.
+Growler delivery for $50 with free first fill \
+Pints for $15 all day at the bar \
+Good betweeen 12pm-6pm on 26 Nov.
 
 Laiba \ 
 https://sg.shop.laibabeverages.com/ \
@@ -126,6 +128,11 @@ Ends at 11:30pm on 27 Nov.
 -----------------------------------------------------------------------------------------
 ## Drinks (outside of Singapore)
 ### These may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol.
+
+AU: Archie Rose \
+https://archierose.com.au/archie-rose-black-friday/ \
+20% off selected items. \
+Ends 30 Nov at noon AEDT.
 
 AU: Australian Whisky Appreciation Society \
 https://awas.com.au/collections/black-friday-sale  \
