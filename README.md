@@ -6,7 +6,7 @@ These deals are publicly announced.
 - End times in the given time zone (if no TZ listed, then SGT).
 - DYOR and AYOR: These are not vetted for legitimacy.
 - There are no affiliate/referral/commission links here, I am making nothing from this.
-- Send updates/additions/corrections to rjhatl@gmail.com.
+- Submit updates/additions/corrections here: https://forms.gle/PVJrKetFEEEeU9NYA.
 
 -----------------------------------------------------------------------------------------
 
