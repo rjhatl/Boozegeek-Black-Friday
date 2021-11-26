@@ -71,8 +71,8 @@ Up to 25% discount on selected labels. May be used in combination with 10-15% di
 Ends at 11:30pm on 27 Nov.
 
 -----------------------------------------------------------------------------------------
-## Drinks 
-### (outside of Singapore, may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol)
+## Drinks (outside of Singapore)
+### These may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol.
 
 France/US: Cognac Expert (ships directly to Singapore) \
 https://www.cognac-expert.com/black-friday/ \
@@ -127,8 +127,8 @@ https://winemasters.tv \
 Good from 26 Nov to 29 Nov (no times given)
 
 -----------------------------------------------------------------------------------------
-## Making your own 
-###(overseas, may not ship directly to SG, you may need to use a forwarding service)
+## Making your own (Outside of SG)
+### May not ship directly to SG, you may need to use a forwarding service.
 
 US: Clawhammer Supply \ 
 https://www.clawhammersupply.com/ \
