@@ -3,7 +3,7 @@ Black Friday deals for booze geeks (with an emphasis on Singapore local deals)
 (H/T to https://github.com/0x90n/InfoSec-Black-Friday which was the inspiration for this)
 
 These deals are publicly announced. 
-- End times in the given time zone
+- End times in the given time zone (if no TZ listed, then SGT).
 - DYOR and AYOR: These are not vetted for legitimacy.
 - There are no affiliate/referral/commission links here, I am making nothing from this.
 - Send updates/additions/corrections to rjhatl@gmail.com.
