@@ -98,7 +98,7 @@ Good betweeen 12pm-6pm on 26 Nov.
 
 Laiba \
 https://sg.shop.laibabeverages.com/ \
-20% off sale (unverified, not listed on their site or social media)
+20% off sale with code BLACK20
 
 Malt & Wine Asia \ 
 https://maltwineasia.com/ \
