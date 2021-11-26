@@ -172,6 +172,13 @@ https://winetoshare.com/ \
 Up to 25% discount on selected labels. May be used in combination with 10-15% discounts of selected cases. \
 Ends at 11:30pm on 27 Nov.
 
+WineAdore \
+https://www.wineadore.com/ \
+8% off any 3 bottles \
+12% off any 6 bottles \
+18% off any 12 bottles \
+Ends Sunday at Midnight.
+
 Wines & Spirits \
 https://www.winesnspirits.sg/promotions/black-friday-cyber-monday  \
 Sales on selected bottles at the above link. \
