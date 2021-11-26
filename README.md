@@ -28,6 +28,11 @@ https://theartofsake.com/pages/ongoing-promotion \
 Two sales: Up to 35% off magnum bottles, free Manotsuru Junmai Sakura with $200+ purchase \
 Magnum sale ends 30 Nov, free bottle offer ends 28 Nov.
 
+Arvo \
+https://www.arvodrinks.asia/ \
+Various beers on sale. \
+No end time given.
+
 Brewlander \
 https://www.brewlander.com/collections/products/  \
 20% off sales. No code, discount automatic \
@@ -92,6 +97,7 @@ Ends at midnight on 29 Nov.
 Shopee \
 https://shopee.sg/collections/956544 \
 Various sales on drinks at the above link \
+$50 cashback on 26 Nov. \
 No dates/times given for validity.
 
 Sunbird Brewing \
