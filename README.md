@@ -1,17 +1,18 @@
-# Booze geek Black Friday deals
+# Booze geek Black Friday deals 2021
 Black Friday deals for booze geeks (with an emphasis on Singapore local deals)
 (H/T to https://github.com/0x90n/InfoSec-Black-Friday which was the inspiration for this)
 
-These deals are publicly announced. 
+Important to note:
+- These deals are publicly announced. 
+- These are either Black Friday, Thanksgiving, and/or Cyber Monday sales. Other sales, including November monthly sales aren't included.
 - End times in the given time zone (if no TZ listed, then SGT).
-- DYOR and AYOR: These are not vetted for legitimacy.
-- There are no affiliate/referral/commission links here, I am making nothing from this.
+- DYOR and AYOR: These are not vetted for legitimacy beyond confirming that there a sale promoted on the website/social media.
+- There are no affiliate/referral/commission links here, I am making nothing from this. 
 - Feel free to follow my Instagram, where I (try to) post entertaining booze stuff: https://www.instagram.com/boozegeeksouth/
-- Submit updates/additions/corrections here: https://forms.gle/PVJrKetFEEEeU9NYA or make a PR (please follow the format).
+- Submit updates/additions/corrections here: https://forms.gle/PVJrKetFEEEeU9NYA or make a PR (just please follow the format if you do).
 
 -----------------------------------------------------------------------------------------
 
-# Booze Geek Black Friday Deals 2021
 ## Drinks (Singapore)
 
 1885 \
