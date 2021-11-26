@@ -70,7 +70,7 @@ No dates/times given for validity.
 
 Paneco \
 https://www.paneco.com.sg/t/alcohol-deals/black-friday-cyber-monday \
-Various sales on beer and spirits \
+Various sales on beer, wine, and spirits \
 Ends at midnight on 29 Nov.
 
 Shopee \
