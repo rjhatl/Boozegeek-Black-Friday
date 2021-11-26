@@ -69,7 +69,7 @@ Buy one get one free on pizza and beer in the bar \
 Good beterrn 12pm-6pm on 26 Nov.
 
 Laiba \ 
-https://sg.shop.laibabeverages.com/  \
+https://sg.shop.laibabeverages.com/ \
 20% off sale (unverified, not listed on their site or social media)
 
 Malt & Wine Asia \ 
