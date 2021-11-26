@@ -83,6 +83,11 @@ https://shopee.sg/collections/956544 \
 Various sales on drinks at the above link \
 No dates/times given for validity.
 
+Sunbird Brewing \
+https://sunbirdbrewingco.com/collections/frontpage?page=2 \
+25% off storewide \
+Ends 27 Nov at midnight.
+
 Temple Cellars \
 https://www.templecellars.com/ \
 15% off with $99 spend using code BFCM \
