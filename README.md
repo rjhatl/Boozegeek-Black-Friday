@@ -23,6 +23,11 @@ Amazon \
 https://www.amazon.sg/blackfriday?deals-widget=%257B%2522presetId%2522:%2522deals-collection-wine%2522%257D \
 Various Black Friday deals on wine, beer, and spirits at the above link.
 
+Art of Sake \
+https://theartofsake.com/pages/ongoing-promotion \
+Two sales: Up to 35% off magnum bottles, free Manotsuru Junmai Sakura with $200+ purchase \
+Magnum sale ends 30 Nov, free bottle offer ends 28 Nov.
+
 Brewlander \
 https://www.brewlander.com/collections/products/  \
 20% off sales. No code, discount automatic \
@@ -102,6 +107,10 @@ Ends at 11:30pm on 27 Nov.
 -----------------------------------------------------------------------------------------
 ## Drinks (outside of Singapore)
 ### These may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol.
+
+AU: Australian Whisky Appreciation Society \
+https://awas.com.au/collections/black-friday-sale  \
+Ends 28 Nov.
 
 FR/US: Cognac Expert (ships directly to Singapore) \
 https://www.cognac-expert.com/black-friday/ \
