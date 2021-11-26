@@ -33,6 +33,11 @@ https://www.arvodrinks.asia/ \
 Various beers on sale. \
 No end time given.
 
+Bound by Wine \
+https://www.boundbywine.com/  \
+5% off sitewide. \
+No given end date/time.
+
 Brewlander \
 https://www.brewlander.com/collections/products/  \
 20% off sales. No code, discount automatic \
@@ -79,6 +84,11 @@ https://elixir-code.com/ \
 Sales on beer, wine and spirits \
 No dates/times given for validity.
 
+EWine Asia \
+https://ewineasia.com/buy-wine-online/promotions \
+Selected wines at 20% off - Thanksgiving sale \
+Ends 28 Nov.
+
 Grand Cru Wine Concierge \
 https://grandcruwines.com/collections/champagne-offer-2021  \
 Champagne sale \
@@ -109,6 +119,11 @@ Paneco \
 https://www.paneco.com.sg/t/alcohol-deals/black-friday-cyber-monday \
 Various sales on beer, wine, and spirits \
 Ends at midnight on 29 Nov.
+
+Sake.sg \
+https://www.sake.sg/index.php?route=product/search&search=Black%20Friday  \
+Up to 20% off Dassai. \
+No given end date/time.
 
 Shopee \
 https://shopee.sg/collections/956544 \
@@ -156,6 +171,11 @@ Wine To Share \
 https://winetoshare.com/ \
 Up to 25% discount on selected labels. May be used in combination with 10-15% discounts of selected cases. \
 Ends at 11:30pm on 27 Nov.
+
+Wines & Spirits \
+https://www.winesnspirits.sg/promotions/black-friday-cyber-monday  \
+Sales on selected bottles at the above link. \
+Ends at midnight on 29 Nov.
 
 -----------------------------------------------------------------------------------------
 ## Drinks (outside of Singapore)
