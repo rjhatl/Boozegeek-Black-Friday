@@ -91,7 +91,7 @@ Growler delivery for $50 with free first fill \
 Pints for $15 all day at the bar \
 Good betweeen 12pm-6pm on 26 Nov.
 
-Laiba \ 
+Laiba \
 https://sg.shop.laibabeverages.com/ \
 20% off sale (unverified, not listed on their site or social media)
 
@@ -178,17 +178,17 @@ No dates/times given for validity.
 IT: Spirit Academy \
 https://www.spiritacademy.it/it/c/84-black-friday
 
-NL: Zeewijck (ships direct to Singapore)\
-https://www.zeewijck.nl/en/search/black+friday/
+NL: Zeewijck (ships direct to Singapore) \
+https://www.zeewijck.nl/en/search/black+friday/ \
 Various deals on rums.
 
-UK: Decadent Drinks (Whisky/Rum Sponge) (Ships direct to Singapore) \ 
-https://decadent-drinks.com/shop/  \
-20% off the two whiskies in their shop. No code, discount automatic \ 
+UK: Decadent Drinks (Whisky/Rum Sponge) (Ships direct to Singapore) \
+https://decadent-drinks.com/shop/ \
+20% off the two whiskies in their shop. No code, discount automatic \
 Ends at 12:00 UK time on 26 Nov.
 
 US: Old Town Tequila (Doesn't ship to SG, you need a forwarder) \
-https://www.oldtowntequila.com/black-friday-specials-2021/
+https://www.oldtowntequila.com/black-friday-specials-2021/ \
 Sales on items at the above link \
 No dates/times given for end of sale.
 
@@ -241,9 +241,9 @@ https://shop.greatfermentations.com/category/black-friday \
 21% off, no code needed. \
 Ends at midnight EST on 28 Nov.
 
-US: Midwest Supplies \ 
-https://www.midwestsupplies.com/collections/black-friday-sale \  
-15% off sitewide with code THANKS \ 
+US: Midwest Supplies \
+https://www.midwestsupplies.com/collections/black-friday-sale \
+15% off sitewide with code THANKS \
 Good through 28 Nov (no times given)
 
 US: MoreBeer \
