@@ -40,7 +40,7 @@ Up to 30% off sale on select whiskies \
 Good between 25 Nov - 12 Dec
 
 EC Proof \
-https://ecproof.com/ \ 
+https://ecproof.com/ \
 20% discount with code BFCM20% \
 Ends 29 November
 
