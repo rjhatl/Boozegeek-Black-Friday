@@ -59,6 +59,11 @@ https://www.getit.changirecommends.com/ \
 Sales on festive gift sets here https://www.getit.changirecommends.com/special-alcohol-bundles-sales?Collection=X%27MAS+GIFT+SETS \
 Ends at midnight 26 Nov.
 
+Cloud Beverage \
+https://cloudbeverage.com/collections/black-friday-cyber-monday \
+Up to 45% off selected items. \
+No end date given but should run at least through 29 Nov.
+
 DFS Singapore \
 https://shop-singapore.dfs.com/collections/black-friday-flash-sale \
 Sale on selected items in the above link. \
