@@ -24,6 +24,11 @@ Amazon \
 https://www.amazon.sg/blackfriday?deals-widget=%257B%2522presetId%2522:%2522deals-collection-wine%2522%257D \
 Various Black Friday deals on wine, beer, and spirits at the above link.
 
+Amigos y Vinos \
+https://www.amigosyvinos.com/ \
+Sales on several wines listed on their main page. \
+No end date/time given.
+
 Art of Sake - Inter Rice Asia \
 https://theartofsake.com/pages/ongoing-promotion \
 Two sales: Up to 35% off magnum bottles, free Manotsuru Junmai Sakura with $200+ purchase \
