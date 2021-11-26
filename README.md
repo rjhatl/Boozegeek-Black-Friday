@@ -55,6 +55,7 @@ https://winetoshare.com/ \
 Up to 25% discount on selected labels. May be used in combination with 10-15% discounts of selected cases. \
 Ends at 11:30pm on 27 Nov.
 
+-----------------------------------------------------------------------------------------
 ## Drinks (outside of Singapore, may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol)
 
 France/US: Cognac Expert (ships directly to Singapore) \
@@ -90,6 +91,7 @@ https://uptownspirits.com/ \
 15% off sitewide with code blackfriday \
 Ends 26 Nov at 11:59pm EST
 
+-----------------------------------------------------------------------------------------
 ## Education
 
 Napa Valley Wine Academy (online wine and spirits education including WSET) \
@@ -108,6 +110,7 @@ https://winemasters.tv \
 35% off 6 month or 1 year subscriptions with code BLACKWINE21 \
 Good from 26 Nov to 29 Nov (no times given)
 
+-----------------------------------------------------------------------------------------
 ## Making your own (overseas, may not ship directly to SG, you may need to use a forwarding service)
 
 US: Clawhammer Supply \ 
