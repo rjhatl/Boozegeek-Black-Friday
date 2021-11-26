@@ -19,6 +19,11 @@ https://www.brewlander.com/collections/products
 20% off sales. No code, discount automatic \
 Good between 26 Nov and 29 Nov (no times given)
 
+Burnt Ends Cellars \
+https://burntendscellars.com.sg/ \
+15% off wine, beer, spirits with the code BLACKFRIDAY15 \
+Good until 30 Nov.
+
 Century Wines \
 https://centurywines.com.sg/ \
 Up to 30% off sale on select whiskies \
