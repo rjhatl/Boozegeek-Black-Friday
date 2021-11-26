@@ -131,6 +131,11 @@ https://www.paneco.com.sg/t/alcohol-deals/black-friday-cyber-monday \
 Various sales on beer, wine, and spirits \
 Ends at midnight on 29 Nov.
 
+Saint Julien Wines \
+https://saintjulienwines.com/promotion \
+Selected wines and bundles at the above link on sale. \
+Ends 30 Nov.
+
 Sake.sg \
 https://www.sake.sg/index.php?route=product/search&search=Black%20Friday  \
 Up to 20% off Dassai. \
