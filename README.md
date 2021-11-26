@@ -68,6 +68,11 @@ https://maltwineasia.com/ \
 10-25% off select spirits, wines, and sakes. No code, discount automatic. \
 No dates/times given for validity.
 
+Paneco \
+https://www.paneco.com.sg/t/alcohol-deals/black-friday-cyber-monday \
+Various sales on beer and spirits \
+Ends at midnight on 29 Nov.
+
 Shopee \
 https://shopee.sg/collections/956544 \
 Various sales on drinks at the above link \
