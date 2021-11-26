@@ -24,8 +24,7 @@ https://www.amazon.sg/blackfriday?deals-widget=%257B%2522presetId%2522:%2522deal
 Various Black Friday deals on wine, beer, and spirits at the above link.
 
 Brewlander \
-https://www.brewlander.com/collections/products 
-
+https://www.brewlander.com/collections/products/  \
 20% off sales. No code, discount automatic \
 Good between 26 Nov and 29 Nov (no times given)
 
@@ -33,6 +32,11 @@ Burnt Ends Cellars \
 https://burntendscellars.com.sg/ \
 15% off wine, beer, spirits with the code BLACKFRIDAY15 \
 Good until 30 Nov.
+
+Cellarbration \
+https://cellarbration.com.sg/  \
+Giant list of Black Friday sale codes here: https://www.facebook.com/cellarbrationsingapore/videos/308558737755861 \
+Ends at 1pm on 26 Nov.
 
 Century Wines \
 https://centurywines.com.sg/ \
@@ -112,9 +116,9 @@ https://www.zeewijck.nl/en/search/black+friday/
 Various deals on rums.
 
 UK: Decadent Drinks (Whisky/Rum Sponge) (Ships direct to Singapore) \ 
-https://decadent-drinks.com/shop \
+https://decadent-drinks.com/shop/  \
 20% off the two whiskies in their shop. No code, discount automatic \ 
-Ends at 12:00 UK time on 26 Nov
+Ends at 12:00 UK time on 26 Nov.
 
 US: Old Town Tequila (Doesn't ship to SG, you need a forwarder) \
 https://www.oldtowntequila.com/black-friday-specials-2021/
