@@ -126,6 +126,11 @@ https://www.sake.sg/index.php?route=product/search&search=Black%20Friday  \
 Up to 20% off Dassai. \
 No given end date/time.
 
+Sake Chan \
+https://www.facebook.com/iamsakechan/photos/a.134061991353485/607041944055485/  \
+15% off in stores only (31 Binjai Park and UE Square) \
+Ends at 10pm on 29 Nov. (when stores close)
+
 Shopee \
 https://shopee.sg/collections/956544 \
 Various sales on drinks at the above link \
