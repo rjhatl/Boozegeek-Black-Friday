@@ -53,6 +53,12 @@ https://centurywines.com.sg/ \
 Up to 30% off sale on select whiskies \
 Good between 25 Nov - 12 Dec
 
+Changi Recommends \
+https://www.getit.changirecommends.com/ \
+10% off wine with code WINEFRIDAY10. \
+Sales on festive gift sets here https://www.getit.changirecommends.com/special-alcohol-bundles-sales?Collection=X%27MAS+GIFT+SETS \
+Ends at midnight 26 Nov.
+
 DFS Singapore \
 https://shop-singapore.dfs.com/collections/black-friday-flash-sale \
 Sale on selected items in the above link. \
