@@ -186,6 +186,10 @@ Good from 26 Nov to 29 Nov (no times given)
 ## Making your own (Outside of SG)
 ### May not ship directly to SG, you may need to use a forwarding service.
 
+AU: Kegland \
+https://www.kegland.com.au/ \
+Various sales and new item launches on 26 Nov. Site will likely be overloaded, so good luck pulling it up! 
+
 US: Clawhammer Supply \ 
 https://www.clawhammersupply.com/ \
 5% off orders $199+ with code 5%OFF \
@@ -199,8 +203,7 @@ https://shop.greatfermentations.com/category/black-friday \
 Ends at midnight EST on 28 Nov.
 
 US: Midwest Supplies \ 
-https://www.midwestsupplies.com/collections/black-friday-sale 
-
+https://www.midwestsupplies.com/collections/black-friday-sale \  
 15% off sitewide with code THANKS \ 
 Good through 28 Nov (no times given)
 
