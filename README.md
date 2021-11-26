@@ -131,6 +131,11 @@ AU: Australian Whisky Appreciation Society \
 https://awas.com.au/collections/black-friday-sale  \
 Ends 28 Nov.
 
+AU: The Whisky List \
+https://thewhiskylist.com.au/ \
+10-30% off selected bottles \
+No end time given.
+
 FR/US: Cognac Expert (ships directly to Singapore) \
 https://www.cognac-expert.com/black-friday/ \
 Up to 50% off selected products at the above link \
