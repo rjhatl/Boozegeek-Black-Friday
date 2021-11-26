@@ -14,6 +14,11 @@ These deals are publicly announced.
 # Booze Geek Black Friday Deals 2021
 ## Drinks (Singapore)
 
+1885 \
+https://www.1855thebottleshop.com/index.php/latest-offers/filter/cat/53-bordeaux.html \
+Up to 32% off Bordeaux wines \
+Ends 28 Nov.
+
 Amazon \
 https://www.amazon.sg/blackfriday?deals-widget=%257B%2522presetId%2522:%2522deals-collection-wine%2522%257D \
 Various Black Friday deals on wine, beer, and spirits at the above link.
