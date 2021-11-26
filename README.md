@@ -7,7 +7,7 @@ These deals are publicly announced.
 - DYOR and AYOR: These are not vetted for legitimacy.
 - There are no affiliate/referral/commission links here, I am making nothing from this.
 - Feel free to follow my Instagram, where I (try to) post entertaining booze stuff: https://www.instagram.com/boozegeeksouth/
-- Submit updates/additions/corrections here: https://forms.gle/PVJrKetFEEEeU9NYA.
+- Submit updates/additions/corrections here: https://forms.gle/PVJrKetFEEEeU9NYA or make a PR.
 
 -----------------------------------------------------------------------------------------
 
