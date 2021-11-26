@@ -100,6 +100,11 @@ https://shopee.sg/grandwinesg  \
 10% of $40+ spend (must claim voucher in Shopee site) \
 Ends 30 Nov.
 
+Haru Sake \
+https://harusake.com/shop/ \
+20% off one bottle, 25% off two bottles, 30% off three or more bottles and free delivery for orders over $150. \
+Ends at midnight 29 Nov.
+
 Heart of Darkness \
 https://www.heartofdarknessbrewery.com.sg/ \
 Buy one get one free on pizza and beer in the bar \
