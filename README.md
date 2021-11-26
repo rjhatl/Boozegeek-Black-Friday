@@ -113,6 +113,11 @@ https://www.undergroundwines.com.sg/  \
 55% off wines, free shipping, cash back for registered users. \
 No end date for validity given.
 
+Vinomofo \
+https://www.vinomofo.com.sg/events/black-friday-sale-free-shipping-price-drops \
+Up to 50% off, free shipping. \
+Ends 27 Nov.
+
 Wine To Share \
 https://winetoshare.com/ \
 Up to 25% discount on selected labels. May be used in combination with 10-15% discounts of selected cases. \
