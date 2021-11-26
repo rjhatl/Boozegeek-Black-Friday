@@ -54,6 +54,11 @@ https://maltwineasia.com/ \
 10-25% off select spirits, wines, and sakes. No code, discount automatic. \
 No dates/times given for validity.
 
+Shopee \
+https://shopee.sg/collections/956544 \
+Various sales on drinks at the above link \
+No dates/times given for validity.
+
 Temple Cellars \
 https://www.templecellars.com/ \
 15% off with $99 spend using code BFCM \
