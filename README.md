@@ -44,6 +44,11 @@ https://elixir-code.com/ \
 Sales on beer, wine and spirits \
 No dates/times given for validity.
 
+Grand Cru Wine Concierge \
+https://grandcruwines.com/collections/champagne-offer-2021  \
+Champagne sale \
+Ends after 26 Nov.
+
 Heart of Darkness \
 https://www.heartofdarknessbrewery.com.sg/ \
 Buy one get one free on pizza and beer in the bar \
@@ -69,6 +74,11 @@ Trouble Brewing \
 https://troublebrewing.com/ \
 25% off everything with code BLACKFRIDAY \
 Ends at midnight 26 Nov.
+
+Underground Wines \
+https://www.undergroundwines.com.sg/  \
+55% off wines, free shipping, cash back for registered users. \
+No end date for validity given.
 
 Wine To Share \
 https://winetoshare.com/ \
