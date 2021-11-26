@@ -79,18 +79,22 @@ Ends at 11:30pm on 27 Nov.
 ## Drinks (outside of Singapore)
 ### These may or may not ship directly to SG, you may need to use a forwarding service that accepts alcohol.
 
-France/US: Cognac Expert (ships directly to Singapore) \
+FR/US: Cognac Expert (ships directly to Singapore) \
 https://www.cognac-expert.com/black-friday/ \
 Up to 50% off selected products at the above link \
 Unclear end date/time, probably on 29 or 30 Nov.
 
-France: LMDW (ships direct to Singapore) \
+FR: LMDW (ships direct to Singapore) \
 https://www.whisky.fr \
 Up to 45% off select items \
 No dates/times given for validity.
 
-Italy: Spirit Academy \
+IT: Spirit Academy \
 https://www.spiritacademy.it/it/c/84-black-friday
+
+NL: Zeewijck (ships direct to Singapore)\
+https://www.zeewijck.nl/en/search/black+friday/
+Various deals on rums.
 
 UK: Decadent Drinks (Whisky/Rum Sponge) (Ships direct to Singapore) \ 
 https://decadent-drinks.com/shop \
