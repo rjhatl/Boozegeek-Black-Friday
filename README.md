@@ -137,7 +137,7 @@ Ends 26 Nov at 11:59pm EST
 Napa Valley Wine Academy (online wine and spirits education including WSET) \
 https://napavalleywineacademy.com/black-friday-2021/ \
 50% off courses listed at the above site. No codes needed. \
-Not all their courses are online, check before you buy. \
+Not all their courses are online, check before you buy. And online courses that come with tasting packs might be a problem. \
 Ends after 30 Nov (no time given).
 
 Wine Folly (Wine educational materials - May or may not ship direct to Singapore) \
