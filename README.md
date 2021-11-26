@@ -1,6 +1,6 @@
 # Booze geek Black Friday deals
 Black Friday deals for booze geeks (with an emphasis on Singapore local deals)
-(H/T to 0x90n/InfoSec-Black-Friday which was the inspiration for this)
+(H/T to https://github.com/0x90n/InfoSec-Black-Friday which was the inspiration for this)
 
 These deals are publicly announced. 
 - End times in the given time zone
