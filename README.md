@@ -94,6 +94,11 @@ https://troublebrewing.com/ \
 25% off everything with code BLACKFRIDAY \
 Ends at midnight 26 Nov.
 
+TSA Wines \
+https://shop.tsawines.com.sg/product-category/craft-beer/ \
+20% off craft beer storewide with code BLACKFRI20% and free delivery with orders over $100. \
+Expires at midnight on 26 Nov.
+
 Underground Wines \
 https://www.undergroundwines.com.sg/  \
 55% off wines, free shipping, cash back for registered users. \
