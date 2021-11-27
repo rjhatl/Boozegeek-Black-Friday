@@ -255,6 +255,11 @@ https://www.oldtowntequila.com/black-friday-specials-2021/ \
 Sales on items at the above link \
 No dates/times given for end of sale.
 
+US: Seelbach's (Doesn't ship to SG, you need a forwarder) \
+https://seelbachs.com/ \
+US$10 off all barrel picks with the code BF \
+No dates/time given for end of sale.
+
 US: Sip Tequila \
 https://siptequila.com/collections/black-friday-collection \
 20% off bundles and bottles of Solento. Free shipping for all orders. \
