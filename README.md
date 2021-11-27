@@ -299,6 +299,11 @@ https://shop.winefolly.com/collections/black-friday-2021 \
 30% off everything at the above link. \
 Ends at 29 Nov at 11:59 PST.
 
+WineMaker Magazine (home winemaking) \
+https://www.winemakermag.com/shop/  \
+20% off everything in the store \
+Ends on 29 Nov at midnight EST.
+
 WineMasters.TV (Wine OTT streaming service) \
 https://winemasters.tv \
 35% off 6 month or 1 year subscriptions with code BLACKWINE21 \
