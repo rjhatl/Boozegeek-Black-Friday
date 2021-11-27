@@ -286,7 +286,7 @@ Ends 5 Dec.
 
 SOMM TV (Wine OTT streaming service)\
 https://www.sommtv.com/ \
-One year subscriptions for only US$20 with the code BF2021. \
+One year subscriptions for only US$20 with the code BF2021. Valid for new AND current subscribers (add on another year). \
 No end date given.
 
 Wine Folly (Wine educational materials - May or may not ship direct to Singapore) \
