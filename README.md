@@ -274,6 +274,11 @@ https://www.robertparker.com/join-us/personal-subscription \
 25% off annual personal subscriptions with the code BLACKFRIDAY2021 \
 Ends 5 Dec.
 
+SOMM TV (Wine OTT streaming service)\
+https://www.sommtv.com/ \
+One year subscriptions for only US$20 with the code BF2021. \
+No end date given.
+
 Wine Folly (Wine educational materials - May or may not ship direct to Singapore) \
 https://shop.winefolly.com/collections/black-friday-2021 \
 30% off everything at the above link. \
