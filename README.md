@@ -200,6 +200,11 @@ https://www.wineadore.com/ \
 18% off any 12 bottles \
 Ends Sunday at Midnight.
 
+Wine Connection \
+https://wineconnection.com.sg/thanksgiving-bundle-3-bottle-pack-99-free-delivery.html \
+Thanksgiving bundle for $99 and free delivery \
+No end date/time given.
+
 Wines & Spirits \
 https://www.winesnspirits.sg/promotions/black-friday-cyber-monday  \
 Sales on selected bottles at the above link. \
