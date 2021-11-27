@@ -273,6 +273,11 @@ Ends 26 Nov at 11:59pm EST
 -----------------------------------------------------------------------------------------
 ## Education
 
+Brew Your Own Magazine (homebrewing beer) \
+https://byo.com/shop/  \
+20% off everything in the store \
+Ends 29 Nov at midnight EST.
+
 Napa Valley Wine Academy (online wine and spirits education including WSET) \
 https://napavalleywineacademy.com/black-friday-2021/ \
 50% off courses listed at the above site. No codes needed. \
