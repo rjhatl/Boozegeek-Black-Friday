@@ -193,6 +193,14 @@ https://www.vinomofo.com.sg/events/black-friday-sale-free-shipping-price-drops \
 Up to 50% off, free shipping. \
 Ends 27 Nov.
 
+Vivino \
+No URL, this is the Vivino app. \
+Cyber Monday sales: \
+$30 off orders over $300 with the code CM30 \
+$90 off orders over $600 with the code CM90 \
+Additional sales on cases in the app. \
+Probably ends at midnight on 29 Nov.
+
 Wine To Share \
 https://winetoshare.com/ \
 Up to 25% discount on selected labels. May be used in combination with 10-15% discounts of selected cases. \
