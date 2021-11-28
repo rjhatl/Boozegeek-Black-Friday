@@ -121,6 +121,11 @@ Laiba \
 https://sg.shop.laibabeverages.com/ \
 20% off sale with code BLACK20
 
+Le Vigne \
+https://www.singaporewines.com/blackfriday21 \
+Discounts on selected wines at the above link. \
+Ends 29 Nov.
+
 Malt & Wine Asia \ 
 https://maltwineasia.com/ \
 10-25% off select spirits, wines, and sakes. No code, discount automatic. \
