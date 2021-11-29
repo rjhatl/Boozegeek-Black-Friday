@@ -39,6 +39,11 @@ https://www.arvodrinks.asia/ \
 Various beers on sale. \
 No end time given.
 
+Bottles and Bottles \
+https://www.bottlesandbottles.com.sg/ \
+Deals on specific bottles online and in store \
+Different one-day deals each day running from 26-29 Nov.
+
 Bound by Wine \
 https://www.boundbywine.com/  \
 5% off sitewide. \
